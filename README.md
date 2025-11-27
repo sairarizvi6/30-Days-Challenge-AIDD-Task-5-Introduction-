@@ -25,4 +25,6 @@ including GeminiCli with Google’s multimodal AI assistant.✈
 
 I consider myself a quick learner,highly adaptable and committed to delivering quality-assured work.
 
-I enjoy learning new technologies taking on challenges and continuously improving myself in both technical and professional domains.✈👍
+I enjoy learning new technologies taking on challenges and continuously improving myself in both technical 
+
+and professional domains.✈👍
