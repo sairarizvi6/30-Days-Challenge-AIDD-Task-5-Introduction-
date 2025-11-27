@@ -11,9 +11,9 @@ received multiple awards in recognition of my exceptional performance and profes
 
 I possess strong expertise in flight data management,scheduling,reservations and interdepartmental coordination.My technical experience 
 
-includes hands on proficiency in **SABRE,HITTIT,SMS/FMS systems and SQL based reporting**. These skills have enabled me to handle complex tasks 
+includes hands on proficiency in **SABRE,HITTIT,SMS/FMS systems and SQL based reporting**. 
 
-efficiently while maintaining accuracy and organizational standards.
+These skills have enabled me to handle complex tasks efficiently while maintaining accuracy and organizational standards.
 
 👉Before joining the **Governor Sindh Initiative (GIAIC)**,I did not have any **IT background**.However,this program opened new doors for me and 
 
