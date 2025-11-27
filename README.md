@@ -3,9 +3,11 @@
 
 👉Hi everyone, **Assalam-o-Alaikum**.
 
-This is **Syeda Saira Rizvi**🤞.I hold a Master’s degree and proudly achieved 1st position in my department.I am currently working at the **Pakistan 
+This is **Syeda Saira Rizvi**🤞.I hold a Master’s degree and proudly achieved 1st position in my department.I am currently working at the 
 
-International Airlines** (**PIA**🚀) Contact Centre,operating through Ufone under a third-party contract.Over the years,I have received multiple 
+**Pakistan International Airlines** (**PIA**🚀) Contact Centre,operating through Ufone under a third-party contract.Over the years,I have 
+
+received multiple 
 
 awards in recognition of my exceptional performance and professional dedication.✌
 
