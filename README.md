@@ -15,12 +15,14 @@ includes hands on proficiency in **SABRE,HITTIT,SMS/FMS systems and SQL based re
 
 These skills have enabled me to handle complex tasks efficiently while maintaining accuracy and organizational standards.
 
-👉Before joining the **Governor Sindh Initiative (GIAIC)**,I did not have any **IT background**.However,this program opened new doors for me and 
+👉Before joining the **Governor Sindh Initiative (GIAIC)**,I did not have any **IT background**.
 
-today I am confidently learning and expanding my technical capabilities.Through **GIAIC**,I am gaining knowledge in modern AI tools,Python,UV 
+However,this program opened new doors for me and today I am confidently learning and expanding my technical capabilities.
 
-environment setup,cloud technologies and advanced frameworks including GeminiCli with Google’s multimodal AI assistant.✈
+Through **GIAIC**,I am gaining knowledge in modern AI tools,Python,UV environment setup,cloud technologies and advanced frameworks
 
-I consider myself a quick learner,highly adaptable and committed to delivering quality-assured work.I enjoy learning new technologies taking on 
+including GeminiCli with Google’s multimodal AI assistant.✈
 
-challenges and continuously improving myself in both technical and professional domains.✈👍
+I consider myself a quick learner,highly adaptable and committed to delivering quality-assured work.
+
+I enjoy learning new technologies taking on challenges and continuously improving myself in both technical and professional domains.✈👍
