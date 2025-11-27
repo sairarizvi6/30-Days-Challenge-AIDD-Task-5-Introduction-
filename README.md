@@ -7,9 +7,7 @@ This is **Syeda Saira Rizvi**🤞.I hold a Master’s degree and proudly achieve
 
 **Pakistan International Airlines** (**PIA**🚀) Contact Centre,operating through Ufone under a third-party contract.Over the years,I have 
 
-received multiple 
-
-awards in recognition of my exceptional performance and professional dedication.✌
+received multiple awards in recognition of my exceptional performance and professional dedication.✌
 
 I possess strong expertise in flight data management,scheduling,reservations and interdepartmental coordination.My technical experience 
 
